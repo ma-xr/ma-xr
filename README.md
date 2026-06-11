@@ -1,5 +1,1 @@
 - 👋 Hi, I’m @ma-xr
-- 👀 I’m interested in you
-- 🌱 I’m currently learning rizz
-- 💞️ I’m looking to collaborate on marriage
-- ⚡ Fun fact: 
